@@ -1,5 +1,19 @@
 # jonasrepo
 SYSTINTG S16
 
-Hi Jonas
+Doobi doobi dapp dapp(3x) 
+Doobi doobi dipp dipp 
+Doobi doobi dapp dapp 
+Du dapp da dapp 
+Bee-beep beep beep beep beep beep beep beep 
+Dibby dabba 
+Dooboo dabba (3x) 
+Beep beep beep beep beep beep beep beep 
+Sabi ng jeep, sabi ng jeep, sabi ng 
+Bee bee bee bee bee bee bee bee bee bee bee beep (fast) 
+Pubo purro bap bap 
+Purro pab bap bap 
+Beep (18x) 
+Beep, beep, beep, beep 
+
 
